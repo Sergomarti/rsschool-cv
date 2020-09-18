@@ -48,4 +48,4 @@ February 2020 – June 2020
 **EDUCATION**:
 
 * Belarusian State University of Informatics and Radioelectronics, Minsk – Engineering and Economics Faculty 
-2018 – currently
+2018 – currently.
